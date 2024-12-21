@@ -1,1 +1,1 @@
-IC3.github.io
+https://projectnotgay.github.io/IC3/
